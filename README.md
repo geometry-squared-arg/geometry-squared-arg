@@ -22,7 +22,7 @@ Here are some ideas to get you started:
 
 ### 「 Skater • Graffiti • Street • Roblox 」
 
-> "▀▄▀▄▀▄   𝐼'𝓂 𝒻𝓊𝒸𝓀𝒾𝓃𝑔 𝑔𝒶𝓎   ▄▀▄▀▄▀"
+> "▀▄▀▄▀▄  I LOVE GEOMETRY SM BRO  ▄▀▄▀▄▀"
 
 </div>
 <img src="https://static.wikia.nocookie.net/outcomememoriesfanon/images/f/f2/Geometry_Squaredrender.png/revision/latest?cb=20251026135406" width="550">
