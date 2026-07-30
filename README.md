@@ -25,4 +25,4 @@ Here are some ideas to get you started:
 > "▀▄▀▄▀▄   𝐼'𝓂 𝒻𝓊𝒸𝓀𝒾𝓃𝑔 𝑔𝒶𝓎   ▄▀▄▀▄▀"
 
 </div>
-<img src="https://www.pinterest.com/pin/551831760613526728/" width="550">
+<img src="https://static.wikia.nocookie.net/outcomememoriesfanon/images/f/f2/Geometry_Squaredrender.png/revision/latest?cb=20251026135406" width="550">
