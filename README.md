@@ -22,6 +22,6 @@ Here are some ideas to get you started:
 
 ### 「 Skater • Graffiti • Street • Roblox 」
 
-> "Life's a glitch, make it art."
+> "▀▄▀▄▀▄   𝐼'𝓂 𝒻𝓊𝒸𝓀𝒾𝓃𝑔 𝑔𝒶𝓎   ▄▀▄▀▄▀"
 
 </div>
