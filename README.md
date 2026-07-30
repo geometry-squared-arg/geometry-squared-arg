@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 <img src="https://media.tenor.com/vdUOOiIt1WgAAAAM/veeronica-forsaken.gif" width="550">
 
-# ıllıllı   🎀  𝒸𝒶𝓁𝓁 𝓂𝑒 𝒜 / 𝒱𝒶𝓃𝒟𝓇𝑒𝓌 / 𝒥𝒶𝒹𝑒𝓃  🎀   ıllıllı
+# ıllıllı   Call me uhh 
 
 ### 「 Skater • Graffiti • Street • Roblox 」
 
