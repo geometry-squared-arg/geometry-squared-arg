@@ -14,3 +14,14 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+<div align="center">
+
+<img src="https://media.tenor.com/vdUOOiIt1WgAAAAM/veeronica-forsaken.gif" width="550">
+
+# geometry-squared-arg
+
+### 「 Skater • Graffiti • Street • Roblox 」
+
+> "Life's a glitch, make it art."
+
+</div>
