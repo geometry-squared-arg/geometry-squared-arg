@@ -1,4 +1,4 @@
-## Hi there 👋
+## Ermmm He/Him 
 
 <!--
 **geometry-squared-arg/geometry-squared-arg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -25,3 +25,4 @@ Here are some ideas to get you started:
 > "▀▄▀▄▀▄   𝐼'𝓂 𝒻𝓊𝒸𝓀𝒾𝓃𝑔 𝑔𝒶𝓎   ▄▀▄▀▄▀"
 
 </div>
+<img src="https://www.pinterest.com/pin/551831760613526728/" width="550">
