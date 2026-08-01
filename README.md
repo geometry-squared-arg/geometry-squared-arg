@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 <div align="center">
 
-<img src="https://media.tenor.com/vdUOOiIt1WgAAAAM/veeronica-forsaken.gif" width="550">
+<img src="https://i.ytimg.com/vi/pFL4CwYiR3Y/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLCFt0EA0AnK9cjognq3gPcIfyFJbg" width="550">
 
 # ıllıllı   Call me uhh 
 
