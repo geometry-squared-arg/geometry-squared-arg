@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 <img src="https://i.ytimg.com/vi/pFL4CwYiR3Y/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLCFt0EA0AnK9cjognq3gPcIfyFJbg" width="550">
 
-# ıllıllı   Call me uhh 
+# ıllıllı   Call me A (trang trí mấy cái này y như thg bê đê)
 
 ### 「 INT ME IF UR LOVE DOD, ARG, HOTLINE MIAMI,.. 」
 
