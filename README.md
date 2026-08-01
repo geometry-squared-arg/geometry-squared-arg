@@ -20,7 +20,7 @@ Here are some ideas to get you started:
 
 # ıllıllı   Call me uhh 
 
-### 「 Skater • Graffiti • Street • Roblox 」
+### 「 INT ME IF UR LOVE DOD, ARG, HOTLINE MIAMI,.. 」
 
 > "▀▄▀▄▀▄  I LOVE GEOMETRY SM BRO  ▄▀▄▀▄▀"
 
