@@ -20,9 +20,9 @@ Here are some ideas to get you started:
 
 # ıllıllı   Call me A (trang trí mấy cái này y như thg bê đê)
 
-### 「 INT ME IF UR LOVE DOD, ARG, HOTLINE MIAMI,.. 」
+### 「 Deivy ngoài đời thực/j 」
 
-> "▀▄▀▄▀▄  I LOVE GEOMETRY SM BRO  ▄▀▄▀▄▀"
+>   I LOVE GEOMETRY SM BRO
 
 </div>
 <img src="https://static.wikia.nocookie.net/outcomememoriesfanon/images/f/f2/Geometry_Squaredrender.png/revision/latest?cb=20251026135406" width="550">
