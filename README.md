@@ -26,5 +26,5 @@ Here are some ideas to get you started:
 
 </div>
 <img src="https://static.wikia.nocookie.net/outcomememoriesfanon/images/f/f2/Geometry_Squaredrender.png/revision/latest?cb=20251026135406" width="550">
+love fem pur
 <img src="https://pbs.twimg.com/media/G3GJiXtW8AEYgwW.jpg" width="550">
-yêu fem pursuer
